@@ -6,7 +6,6 @@
 
 ! <3
 
-![](https://github.com/user-attachments/assets/dd211059-3e77-4f43-93d4-439ee5920569)
 
  NOW PLAYING!
              
@@ -15,5 +14,4 @@
  
  4:01---------------------★------------5:09 
 
-![](https://github.com/user-attachments/assets/437aaaf4-f058-4af4-9c33-2de0599906cc)
 

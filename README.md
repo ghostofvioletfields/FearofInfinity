@@ -1,17 +1,17 @@
-. >> " Your my mascara bleedin' girl! " << .
+. >> " And I became myself capable of bestowing animation upon lifeless matter . " << .
 
-Hi welcome to my github!!!!!!
-Heres some interests of mine:
-Will Wood, Beetlejuice, Ranboo/Genloss, Fnaf, Regretevator/Pressure, Deltarune, Wof and WC, Divergent (Movie n Book), SPG, Md and etc! That's it for now as there is so many more!
-If you see this you have found me on pt or twt! Good job!
+↪ : You can call me Chance, Vienna (Vie if we're close) or Victor !! / Vienna + Victor pref ^u^ ! .
+⫎ | I have a MAJOR fixation on 1818 & 2025 Frankenstein so I beg of you to int if u luv it as well!!
+- On that note; Yes I relate and luv Victor Frankenstein SO MUCH!!! No I do not justify his actions t.t :
 
 ! <3
 
-![](https://github.com/user-attachments/assets/5f436950-11ee-4dc5-a0c8-c54fe1d6fa5c)
+![](https://github.com/user-attachments/assets/dd211059-3e77-4f43-93d4-439ee5920569)
 
  NOW PLAYING!
              
- Honeybee - 
- Steam Powered Giraffe
+ Come Alive - 
+ Foo Fighters
  
  4:01---------------------★------------5:09 
+⫘
